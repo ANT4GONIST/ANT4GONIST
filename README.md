@@ -6,8 +6,7 @@
 —*GMT* **7** *+*
 **Oc**s ~~style~~ : **tint***ed*
 
-**Barbz** . **Daydr**eamers . **Enstars** . ~~Reverse~~**99**
-
+**Barbz** . **Daydr**eamers . **Enstars** . ~~Reverse~~**99**,
 **ANTI** ~~SWIFTIES~~
 
 ~~Read my Ocs lore!!~~
