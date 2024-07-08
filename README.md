@@ -6,6 +6,8 @@
 —*GMT* **7** *+*
 **Oc**s ~~style~~ : **tint***ed*
 
+**Barbz** . **Daydr**eamers
+
 ~~Read my Ocs lore!!~~
 
 **Midday on an Oceania Island 
