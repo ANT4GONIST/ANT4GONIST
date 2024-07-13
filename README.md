@@ -6,11 +6,13 @@
 —*GMT* **7** *+*
 **Oc**s ~~style~~ : **tint***ed*
 
-**Barbz** . **Daydr**eamers . **Enstars** . ~~Reverse~~**99**,
+*Fandom* : **Barbz** . **Daydr**eamers . **Enstars** . ~~Reverse~~**99**,
 **ANTI** ~~SWIFTIES~~
 ﹒　🏮　　　　⁺　　　　◍
 **Balinese, live in java** 
+
 *Hinduism* ~~Hate pajeets btw~~
+
 ﹒　　🍨　　　⁺　　　　◍
 ~~Read my Ocs lore!!~~
 
