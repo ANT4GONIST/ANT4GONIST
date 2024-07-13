@@ -39,4 +39,4 @@ his father accepted it!!
    ~~*Motunui*
 
    
-    .    sorry for bad English..
+    .    CR : Moana movie
