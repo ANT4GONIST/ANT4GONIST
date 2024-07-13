@@ -8,7 +8,10 @@
 
 **Barbz** . **Daydr**eamers . **Enstars** . ~~Reverse~~**99**,
 **ANTI** ~~SWIFTIES~~
-
+﹒　🏮　　　　⁺　　　　◍
+**Balinese, live in java** 
+*Hinduism* ~~Hate pajeets btw~~
+﹒　　🍨　　　⁺　　　　◍
 ~~Read my Ocs lore!!~~
 
 **Midday on an Oceania Island 
