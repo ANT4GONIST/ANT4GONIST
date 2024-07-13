@@ -38,5 +38,5 @@ his father accepted it!!
    (If your education is finished, please return to your homeland) 
    ~~*Motunui*
    
-!(https://discord.com/channels/1236999814453919847/1237000857380196483/1261674095389446215)   
+![My oc](pony-town-obsessed with tan skin-trot-blinking-padded-3x)
     .    CR : Moana movie
