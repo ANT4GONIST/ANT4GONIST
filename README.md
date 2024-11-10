@@ -1,9 +1,9 @@
 ﹒　　　🏝️　　　　⁺　　　　◍
        **Kcaryn/Castanya**
-	~~Sta~~rs/Star**self**
+	~~Fash~~ion/Fashion**self**
 ﹒　　🌊　　　　⁺　　　　◍
 **Star***gender*
-—*GMT* **8** *+*
+—*GMT* **7** *+*
 **Oc**s ~~style~~ : **tint***ed*/**Mess***y*
 
 *Fandom* : **Barbz** . **Daydr**eamers . **Enstars** . ~~Reverse~~**99**,
