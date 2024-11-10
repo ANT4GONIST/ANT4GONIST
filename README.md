@@ -14,5 +14,3 @@
 *Hinduism* ~~Hate pajeets btw~~
 
 ﹒　　🍨　　　⁺　　　　◍
-
-![Pony town Ocs with messy style] (https://discord.com/channels/1305155303502778488/1305155303502778491/1305155686879203360)
