@@ -13,7 +13,7 @@
 
 *Hinduism* , ~~Hate pajeets btw~~
 
-**just interact with me, i don't care "~~DNI,interact just for friend,DNT.~~" **ECT**
+**just interact with me, i don't care about**"~~DNI,interact just for friend,DNT.~~ ect!
 ﹒　　🍨　　　⁺　　　　◍
 
 
