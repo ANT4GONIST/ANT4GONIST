@@ -17,8 +17,5 @@
 ﹒　　🍨　　　⁺　　　　◍
 
 
-*Note : i dont add image in this repository cus I don't know how to do it correctly /cry*
-
-
 
 **Actually, check my Carrd to get more information about me** *!*!
