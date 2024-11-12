@@ -14,3 +14,5 @@
 *Hinduism* , ~~Hate pajeets btw~~
 
 ﹒　　🍨　　　⁺　　　　◍
+
+**Actually, check my Carrd to get more information about me** *!*!
