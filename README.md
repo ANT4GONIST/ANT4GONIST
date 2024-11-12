@@ -16,7 +16,7 @@
 ﹒　　🍨　　　⁺　　　　◍
 
 
-*Note i dont add image or something in this repository cus I don't know how to do it correctly /cry*
+*Note : i dont add image in this repository cus I don't know how to do it correctly /cry*
 
 
 
