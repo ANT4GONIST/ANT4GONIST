@@ -11,6 +11,6 @@
 ﹒　🏮　　　　⁺　　　　◍
 **Balinese, live in java** 
 
-*Hinduism* ~~Hate pajeets btw~~
+*Hinduism* , ~~Hate pajeets btw~~
 
 ﹒　　🍨　　　⁺　　　　◍
