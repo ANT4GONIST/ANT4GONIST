@@ -1,7 +1,6 @@
 ﹒　　　🏝️　　　　⁺　　　　◍
        **Kcaryn/Castanya**
-       
-	~~Fash~~ion/Fashion**self**
+~~Fash~~ion/Fashion**self**
 ﹒　　🌊　　　　⁺　　　　◍
 **Star***gender*
 —*GMT* **7** *+*
