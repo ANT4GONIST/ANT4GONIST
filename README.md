@@ -5,7 +5,6 @@
 ﹒　　🌊　　　　⁺　　　　◍
 **Star***gender*
 —*GMT* **7** *+*
-**Oc**s ~~style~~ : **tint***ed*/*dark***Mess***y*
 
 *Fandom* : **Barbz** . **Daydr**eamers . **Enstars** . ~~Reverse~~**99**,
 **ANTI** ~~SWIFTIES~~
