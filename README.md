@@ -13,6 +13,7 @@
 ﹒　🏮　　　　⁺　　　　◍
 **Balinese, live in java** 
 
+
 *Hinduism* , ~~Hate pajeets btw~~
 
 **just interact with me, i don't care about**"~~DNI,interact just for friend,DNT.~~ ect!
