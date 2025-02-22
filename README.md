@@ -3,8 +3,8 @@
    🐑  :  (🌪️)
 
 ![1000015917](https://github.com/user-attachments/assets/fa900a8b-ac0e-4bb3-ba17-181d655ec494)
+![1000016873](https://github.com/user-attachments/assets/8f1360bc-f726-41d4-aecc-6fa714a3eca8)
 
-[![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31gg2v6olfsmuvek6n6zhpv5j7va&cover_image=true&theme=default&show_offline=false&background_color=ffffff&interchange=false&bar_color=ffffff)](https://spotify-github-profile.kittinanx.com/api/view?uid=31gg2v6olfsmuvek6n6zhpv5j7va&redirect=true)
 
 `Jar containing 눈물 of the Princess`
      🍥      :   (🦪)
