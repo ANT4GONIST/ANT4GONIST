@@ -1,7 +1,7 @@
 
    **그만큼 dust of faerie**
    🐑  :  (🌪️)
-![1000016907](https://github.com/user-attachments/assets/c898e62d-279f-4f2b-98f9-6b68c67d0baf)
+![1000016923](https://github.com/user-attachments/assets/cdff451e-9348-4e14-81b4-ff1bf98770e7)
 
  
 ![1000015917](https://github.com/user-attachments/assets/fa900a8b-ac0e-4bb3-ba17-181d655ec494)
